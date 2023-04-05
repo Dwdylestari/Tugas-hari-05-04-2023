@@ -1,4 +1,4 @@
-# Tugas hari 05-04-2023
+# Tugas hari Rabu 05-04-2023
 
 Nama    : Dewi Lestari
 Email   : dewilestari300401@gmail.com
